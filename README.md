@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @neel945212
+- 👀 I’m interested in coding, and websites, and how they work.
+- 🌱 I’m currently learning how to code HTML javascript, and CSS.
+- 💞️ I’m looking to collaborate on nothing realy.
+- 📫 How to reach me check out my websites...
+- 😄 Pronouns: none
+- ⚡ Fun fact: i am young
